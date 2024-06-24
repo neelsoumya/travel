@@ -5,3 +5,5 @@ Trips to Isle of Skye, Glencoe, Ben nevis gondola
 Ardnamurchan highly recommended (trip by Ronnie Wilson Abrach taxis)
 
 Loch Linnhe cruise
+
+Caledonian sleeper from London to Fort William
