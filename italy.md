@@ -38,6 +38,24 @@ If you're traveling with **elderly parents**, make sure each of them carries a v
 Let me know if you’d like a checklist or printable version for your trip.
 
 
+Yes, when visiting the **Colosseum** with tickets purchased online (without a Roma Pass), you are required to present a valid form of identification at the entrance.
+
+According to the official ticketing information, **all visitors, including children**, must show a valid identity document to access the Colosseum. ([Il Colosseo][1])
+
+While some sources suggest that a **photocopy or digital image** of your ID might be acceptable,  others advise that **only original documents** are valid for entry.&#x20;
+
+To ensure a smooth entry:
+
+* **Bring your original passport or government-issued photo ID** that matches the name on your ticket.
+* **Do not rely solely on photocopies or digital images**, as they may not be accepted.
+* **Carry your ID securely**, such as in a money belt or a secure bag, to protect against loss or theft.
+
+By adhering to these guidelines, you can help ensure a hassle-free visit to the Colosseum.
+
+[1]: https://www.il-colosseo.it/en/prenotazioni.php?id=30&utm_source=chatgpt.com "Ticket booking - The Colosseum"
+
+
+
 ## Rome
 
 Yes, **you absolutely should book Colosseum tickets online in advance** — even if you have a **Roma Pass**. Here's why:
