@@ -2,6 +2,79 @@
 
 ## Rome
 
+# 🎫 Buying the Roma Pass In Person
+
+You can easily purchase the **Roma Pass** in person at a variety of locations throughout Rome, including airports, metro stations, museums, and tourist information points.
+
+---
+
+## 🏛️ Tourist Infopoints (PIT)
+
+These official tourist kiosks are scattered across Rome and offer the Roma Pass for sale:
+
+### PIT Fori Imperiali
+- 📍 Via dei Fori Imperiali
+- 🕒 Open daily: 10:30 AM – 8:00 PM
+- ✅ Great for those visiting the Colosseum or Roman Forum
+
+### PIT Minghetti
+- 📍 Via Marco Minghetti (corner with Via del Corso)
+- 🕒 Open daily: 9:30 AM – 7:00 PM
+- ✅ Convenient for Trevi Fountain and Spanish Steps area
+
+### PIT Castel Sant’Angelo
+- 📍 Piazza Pia (next to Castel Sant’Angelo Gardens)
+- 🕒 Open daily: 9:30 AM – 7:00 PM
+- ✅ Ideal for Vatican visits
+
+---
+
+## 🚉 Metro and Train Stations
+
+### Termini Station (Main Rail Hub)
+- 📍 Via Giovanni Giolitti 34, Building F – near Platform 24
+- 🕒 Open daily: 9:30 AM – 7:00 PM
+
+### Other Metro Stations
+You can buy the Roma Pass at several metro stations, including:
+- Anagnina
+- Battistini
+- Conca d’Oro
+- Eur Fermi
+- Laurentina
+- Lepanto
+- Ottaviano
+- Ponte Mammolo
+- Spagna
+
+---
+
+## ✈️ Airport Locations
+
+### Fiumicino Airport (Leonardo da Vinci)
+- 📍 Terminal T3, International Arrivals
+- 🕒 Open daily: 8:30 AM – 8:00 PM
+
+### Ciampino Airport
+- 📍 Outside the International Arrivals area
+- 🕒 Opening hours may vary – check locally
+
+---
+
+## 🖼️ Museums and Attractions
+
+Some museums and archaeological sites also sell the Roma Pass at their ticket counters, including:
+- Colosseum
+- Palatine Hill
+- Other participating locations
+
+---
+
+## 💳 Payment Methods
+
+- Most locations accept **cash** and **credit/debit cards** (Visa, Mastercard).
+
+
 # 🎟️ Where to Pick Up the Roma Pass
 
 You can collect your Roma Pass at various **Tourist Infopoints** (PITs) across Rome, including central locations, transport hubs, and airports.
