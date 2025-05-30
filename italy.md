@@ -2,6 +2,65 @@
 
 ## Rome
 
+# 🎟️ Where to Pick Up the Roma Pass
+
+You can collect your Roma Pass at various **Tourist Infopoints** (PITs) across Rome, including central locations, transport hubs, and airports.
+
+---
+
+## 🏛️ Central Rome Locations
+
+### **PIT Fori Imperiali**
+- 📍 *Via dei Fori Imperiali*
+- 🕒 *Open daily from 10:30 AM to 8:00 PM*
+- 📌 Ideal for visits to the Colosseum or Roman Forum
+
+### **PIT Minghetti**
+- 📍 *Via Marco Minghetti (corner of Via del Corso)*
+- 🕒 *Open daily from 9:30 AM to 7:00 PM*
+- 📌 Convenient if staying near the Trevi Fountain or Spanish Steps
+
+### **PIT Castel Sant’Angelo**
+- 📍 *Piazza Pia (next to the gardens of Castel Sant’Angelo)*
+- 🕒 *Open daily from 9:30 AM to 7:00 PM*
+- 📌 Perfect if visiting Vatican City
+
+---
+
+## 🚉 Transport Hubs
+
+### **Termini Station**
+- 📍 *Via Giovanni Giolitti 34, Building F – near Platform 24*
+- 🕒 *Open daily from 9:30 AM to 7:00 PM*
+- 📌 Ideal for those arriving by train
+
+---
+
+## ✈️ Airport Locations
+
+### **Fiumicino Airport (Leonardo da Vinci)**
+- 📍 *Terminal T3, International Arrivals*
+- 🕒 *Open daily from 8:30 AM to 8:00 PM*
+- 📌 Convenient for international travelers
+
+### **Ciampino Airport**
+- 📍 *External area of International Arrivals*
+- 🕒 *Hours may vary — check locally*
+- 📌 Useful for low-cost airline passengers
+
+---
+
+## 📝 Important Notes
+
+- 💻 **Online Purchases**: If you buy the Roma Pass online at [romapass.it](https://www.romapass.it/en/home/), you can collect it at any Tourist Infopoint **24 hours after purchase**.
+- 🪪 **ID Required**: Bring a valid ID or passport when picking up the pass.
+- ⏰ **Check Hours**: While most PITs are open daily, confirm opening hours via the official [Turismo Roma site](https://www.turismoroma.it/en/node/18694).
+
+---
+
+By collecting your Roma Pass at a convenient location, you can kick off your Roman holiday with ease — especially helpful when traveling with elderly parents.
+
+
 ## Vatican
 
 https://jotzle.com/ultimate-guide-to-vatican-tickets/
