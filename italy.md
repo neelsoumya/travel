@@ -103,6 +103,63 @@ You can reserve online in a few ways:
 Let me know if you'd like help finding a time slot or step-by-step booking instructions!
 
 
+# 🚇🚌 How to Pay for Metro, Bus, and Tram in Rome (Without Roma Pass)
+
+If you're not using a Roma Pass, here are all the convenient ways to pay for public transportation in Rome, operated by **ATAC**.
+
+---
+
+## ✅ 1. Tap & Go (Contactless Payment)
+
+- Use a **contactless credit/debit card** or **mobile wallet** (Apple Pay, Google Pay).
+- Tap directly at **metro turnstiles** or on some **newer buses**.
+- 💶 **Cost:** €1.50 per ride  
+  (valid for 100 minutes on bus/tram + 1 metro ride)
+
+> ⚠️ Not available on all buses. Most reliable on metro.
+
+---
+
+## ✅ 2. Buy a Paper Ticket (BIT Ticket)
+
+- **BIT Ticket** (Biglietto Integrato a Tempo)
+- 💶 **Cost:** €1.50
+- Valid for:
+  - 100 minutes on buses and trams
+  - 1 metro ride (including line changes)
+
+### Where to Buy:
+- 🏪 Tobacconists (look for a "T" sign)
+- 📰 Newsstands
+- 🚉 Metro station ticket machines
+- 🟣 ATAC ticket offices
+
+> ✅ **Validate** your ticket before boarding (yellow machines on buses/trams or at metro gates)
+
+---
+
+## ✅ 3. Use a Mobile App
+
+Buy digital tickets via mobile apps — no physical ticket required.
+
+### Popular Apps:
+- 📱 [ATAC Tap&Go](https://www.atac.roma.it/en/tickets-and-passes/tap-go)
+- 📱 [myCicero](https://www.mycicero.it)
+- 📱 [MooneyGo](https://www.mooneygo.it)
+
+> ✅ Receive a QR code or digital ticket on your phone  
+> 👮 Show it if asked by a ticket inspector
+
+---
+
+## ✅ 4. Travel Cards (No Roma Pass Needed)
+
+Good for unlimited rides for a set period — great for tourists.
+
+| Ticket Type       | Price   | Validity                           |
+|-----------
+
+
 # 🎫 Buying the Roma Pass In Person
 
 You can easily purchase the **Roma Pass** in person at a variety of locations throughout Rome, including airports, metro stations, museums, and tourist information points.
