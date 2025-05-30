@@ -1,5 +1,43 @@
 # Trip to Italy
 
+## ID
+
+Yes, **you do need to show ID** to enter the **Colosseum** — especially if you're using a **Roma Pass** or have made a **reservation online**.
+
+---
+
+### 🪪 ID Requirements at the Colosseum
+
+* ✅ **Valid identification (passport or national ID card)** is **required** for:
+
+  * Entry with a **Roma Pass**
+  * Pre-booked **free/reduced tickets** (e.g. for EU citizens under 26, children, or elderly)
+  * **Name-based reservations** (your name must match the ticket)
+
+* 🎫 **Roma Pass holders** must also present their **Roma Pass card** with ID to validate entry.
+
+---
+
+### 🔒 Why It's Required
+
+* The Colosseum uses a **strict name-matching policy** for tickets and time slots due to high demand, security, and anti-scalping regulations.
+* Tickets are **non-transferable**, so they must match your ID.
+
+---
+
+### ✅ What to Bring
+
+* Your **passport or EU ID card**
+* A **digital or printed copy of your ticket/reservation**
+* Your **Roma Pass** (if applicable)
+
+---
+
+If you're traveling with **elderly parents**, make sure each of them carries a valid ID and that the reservation names match.
+
+Let me know if you’d like a checklist or printable version for your trip.
+
+
 ## Rome
 
 # 🎫 Buying the Roma Pass In Person
