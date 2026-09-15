@@ -25,3 +25,8 @@ https://github.com/neelsoumya/travel/blob/main/swiss.md
 ## Japan
 
 https://github.com/neelsoumya/travel/blob/main/japan.md
+
+## India
+
+- Dudhsagar falls
+- Malampuzha dam Kerala 🦫 
