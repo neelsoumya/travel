@@ -13,6 +13,7 @@
 
   * Scenic mountain railway experience.
   * Enjoy views of Lake Brienz and the surrounding Alps.
+  * [Video](https://www.youtube.com/shorts/4OMTkNsFbII)
 * Possible alternative/combination:
 
   * **Rigi → Vitznau → cogwheel railway**
