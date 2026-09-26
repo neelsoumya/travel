@@ -56,13 +56,12 @@ Swiss German words
 ## Day 4 — Rest, Chocolate & Shopping
 
 * 😌 Relaxed / rest day.
-* 🍫 Visit a Swiss chocolate attraction or factory.
+* 🍫 Visit a Swiss chocolate attraction or factory [video](https://www.youtube.com/watch?v=l8OnXRxI4sA)
 * Possible destination:
 
   * **ChocoWelt / Root**
 * 🕰️ Look for a traditional **Swiss cuckoo clock**.
 * 🛍️ Shopping in **Lucerne**.
-* Optional excursion to **Zurich**.
 * 🏙️ Gentle Lucerne city sightseeing.
 * Keep this day relatively unstructured.
 
