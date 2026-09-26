@@ -29,7 +29,7 @@ https://github.com/neelsoumya/travel/blob/main/italy.md
 
 ## Japan
 
-https://github.com/neelsoumya/travel/blob/main/japan.md
+- [Japan](japan.md)
 
 ## Peru
 
