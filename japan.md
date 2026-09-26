@@ -1,4 +1,12 @@
-* shinkansen
+# Japan
+
+## Tokyo
+
+* [Tokyo](https://www.youtube.com/shorts/RVxHogEm3kM)
+
+* [Shibuya crossing](https://www.youtube.com/shorts/p4559D_5Sow)
+
+* [shinkansen/bullet train](https://www.youtube.com/shorts/k7_rAABWDA8)
 
 * https://smart-ex.jp/en/reservation/
 
@@ -14,4 +22,9 @@ choose with luggage option
 
 * [Subhas Chandra Bose final resting place](https://www.youtube.com/shorts/vaqu9YDOIAM)
 
+
+## Kyoto
+
 * [Kyoto](https://www.youtube.com/shorts/nMNOWBdnL4w)
+
+* [Kyoto Inari temple](https://www.youtube.com/shorts/k7_rAABWDA8)
