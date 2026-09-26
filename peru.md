@@ -6,6 +6,8 @@
 - Machu Pichu
 - Arequippa
 - Rainbow mountain
+- [My travel blog Peru](https://sites.google.com/view/deshebideshetravel/home/peru?authuser=0)
+- [travel blog]()
 
 ## Spanish words
 
