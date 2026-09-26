@@ -26,7 +26,12 @@ https://github.com/neelsoumya/travel/blob/main/swiss.md
 
 https://github.com/neelsoumya/travel/blob/main/japan.md
 
+## Peru
+
+- [webpage](peru.md)
+
 ## India
 
 - Dudhsagar falls
 - Malampuzha dam Kerala 🦫 
+- Taj Mahal 
