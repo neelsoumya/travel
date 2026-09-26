@@ -11,6 +11,10 @@ Swiss German words
 - bitte schun (_you are welcome 🙏 _)
 - ein moment bitte (_one moment please_)
 
+## Center around Lucerne
+
+## Buy Lucerne travel pass
+
 ## Day 1 — Arrival & Lucerne
 
 * ✈️ Arrive in Switzerland.
@@ -22,6 +26,7 @@ Swiss German words
 
 * 🚂 **Brienzer Rothorn Railway**
 
+  * _Buy tickets 3 weeks before_
   * Scenic mountain railway experience.
   * Enjoy views of Lake Brienz and the surrounding Alps.
   * [Video](https://www.youtube.com/shorts/4OMTkNsFbII)
