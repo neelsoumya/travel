@@ -7,7 +7,7 @@
 - Arequippa
 - Rainbow mountain
 - [My travel blog Peru](https://sites.google.com/view/deshebideshetravel/home/peru?authuser=0)
-- [travel blog]()
+- [travel blog](https://github.com/neelsoumya/travel/blob/main/deshe.pdf)
 
 ## Spanish words
 
