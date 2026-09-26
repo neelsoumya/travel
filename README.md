@@ -51,4 +51,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 - Dudhsagar falls
 - Malampuzha dam Kerala 🦫 
-- Taj Mahal 
+- Taj Mahal
+- Leh/Ladakh
+- Arunachal Pradesh
+
