@@ -12,6 +12,11 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 https://github.com/neelsoumya/travel/blob/main/italy.md
 
+- [Naples](https://github.com/neelsoumya/travel/blob/main/Naples.pdf)
+- Amalfi coast cruise from Naples
+- Vesuvius
+- Naples 🍕 pizza!
+
 ## Switzerland
 
 - [Switzerland](swiss.md)
