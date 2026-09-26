@@ -14,7 +14,7 @@ https://github.com/neelsoumya/travel/blob/main/italy.md
 
 ## Switzerland
 
-https://github.com/neelsoumya/travel/blob/main/swiss.md
+- [Switzerland](swiss.md)
 
 ## Greece
 
