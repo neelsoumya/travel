@@ -23,9 +23,16 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 ## Greece
 
+- Athens
+- Kytheira
+- Peloponesia
+
 ## Egypt
 
 ## Tanzania
+
+- Serengetti
+- Kilimanjaro
 
 ## Japan
 
@@ -34,6 +41,11 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## Peru
 
 - [webpage](peru.md)
+
+## Thailand 🇹🇭
+
+- Ayutaya sukhothai
+
 
 ## India
 
