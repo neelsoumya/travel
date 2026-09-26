@@ -1,5 +1,16 @@
 # Switzerland — 6–7 Day Itinerary
 
+- Hiking Schubelbach mountain near Lucerne [video](https://www.youtube.com/shorts/hrtsiRaRoXo)
+- Brienz Rothorn Bahn
+
+Swiss German words
+- Gruetsi (_hello_)
+- Guten morgen (_Good morning_)
+- Danke schun (_Thank you_)
+- Chuss (_bye_)
+- bitte schun (_you are welcome 🙏 _)
+- ein moment bitte (_one moment please_)
+
 ## Day 1 — Arrival & Lucerne
 
 * ✈️ Arrive in Switzerland.
