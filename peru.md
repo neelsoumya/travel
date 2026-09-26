@@ -1,3 +1,20 @@
+# Peru
+
+- Lima pyramid
+- Cusco
+- [Cusco San Pedro market](https://www.youtube.com/shorts/0gKU-iOSWIE) and [video](https://www.youtube.com/shorts/8S6qTMIT-Y4)
+- Machu Pichu
+- Arequippa
+- Rainbow mountain
+
+## Spanish words
+
+- Hola
+- Como estas?
+- Bien
+- Buenas dias
+- Buenas noches
+
 Machu Pichu
 
 Lima
