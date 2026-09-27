@@ -90,7 +90,7 @@ Swiss German words
 * 🕰️ Cuckoo clock shopping.
 * 🚤 Paddleboat on **Lake Lucerne**.
 * 🏔️ Visit **Rigi** if not already done.
-* 🏘️ Visit **Brunnen**.
+* 🏘️ Visit **Brunnen** and _steam paddleboat_ back to Lucerne.
 * 🏔️ Optional **Grindelwald** excursion if not done previously.
 * Keep this day flexible as a **weather backup day** for mountain excursions.
 
