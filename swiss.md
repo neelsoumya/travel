@@ -10,6 +10,7 @@ Swiss German words
 - Chuss (_bye_)
 - bitte schun (_you are welcome 🙏 _)
 - ein moment bitte (_one moment please_)
+- nicht bitte (_no please_)
 
 ## Center around Lucerne
 
