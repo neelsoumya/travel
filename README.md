@@ -52,6 +52,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Dudhsagar falls
 - Malampuzha dam Kerala 🦫 
 - Taj Mahal
-- Leh/Ladakh
+- Leh/Ladakh [video Zanskar hike](https://www.youtube.com/watch?v=FdjCLwtFhF4)
+- Himalayan mountaineering institute 
 - Arunachal Pradesh
 
