@@ -1,6 +1,6 @@
 # travel
 
-travel
+Travel
 
 ## Scotland
 
