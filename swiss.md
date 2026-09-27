@@ -14,9 +14,12 @@ Swiss German words
 
 ## Center around Lucerne
 
+- Lucerne travel pass
+
 ## Apps
 
 - [SBB](https://play.google.com/store/apps/details?id=ch.sbb.mobile.android.b2c&hl=de_CH)
+- Revolut
 
 ## Buy Lucerne travel pass
 
