@@ -16,6 +16,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Amalfi coast cruise from Naples
 - Vesuvius
 - Naples 🍕 pizza!
+- [Siena](https://www.youtube.com/shorts/cXHwjGmQf4M) and [horse racing in Siena](https://www.youtube.com/shorts/EOW4aEQ2oYU)
 
 ## Switzerland
 
