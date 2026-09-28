@@ -13,7 +13,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Italy](italy.md)
 
 - [Naples](https://github.com/neelsoumya/travel/blob/main/Naples.pdf)
-- Amalfi coast cruise from [Naples](https://www.youtube.com/shorts/3vmsl79sEqk)
+- [Amalfi coast cruise](https://www.youtube.com/shorts/4pwkXu-IJpc) from [Naples](https://www.youtube.com/shorts/3vmsl79sEqk)
 - Vesuvius
 - Naples 🍕 pizza!
 - [Siena](https://www.youtube.com/shorts/cXHwjGmQf4M) and [horse racing in Siena](https://www.youtube.com/shorts/EOW4aEQ2oYU)
