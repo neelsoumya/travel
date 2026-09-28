@@ -10,7 +10,7 @@ Kindness is in all of us.
 
 ![A colourful street stall in Cusco, Peru, selling snacks and drinks](images/cusco-street-stall.png)
 
-*Video: "Beautiful Peru 🇵🇪" — neelsoumya (a trip in Peru is not complete without baby alpacas!)*
+[*Video: "Beautiful Peru 🇵🇪" — neelsoumya (a trip in Peru is not complete without baby alpacas!)*](https://www.youtube.com/watch?v=YkUK8udCMIc)
 
 ## Tickets
 
