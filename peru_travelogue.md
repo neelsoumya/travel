@@ -66,6 +66,5 @@ The shop owner having received our order now started preparing it. I half expect
 
 In the day and age of modern restaurants, those memories of Kolkata street food have become just a distant dream. It seems the only way to time travel back to those bygone days in Kolkata is to travel to South America.
 
-*Video: "San Pedro Market Cusco Peru 🇵🇪" — neelsoumya*
 
 [*Video: "A walk through San Pedro Market in Cusco Peru 🇵🇪" — neelsoumya*](https://www.youtube.com/watch?v=0gKU-iOSWIE)
