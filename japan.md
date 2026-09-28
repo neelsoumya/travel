@@ -28,3 +28,7 @@ choose with luggage option
 * [Kyoto](https://www.youtube.com/shorts/nMNOWBdnL4w)
 
 * [Kyoto Inari temple](https://www.youtube.com/shorts/k7_rAABWDA8)
+
+* Arashiyama
+
+* Teien Zen Garden
