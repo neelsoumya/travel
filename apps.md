@@ -6,3 +6,4 @@
 - Smartphone and SIM
 - Chargers/converters
 - Travel documents
+- Taxi app
