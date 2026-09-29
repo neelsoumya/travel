@@ -22,6 +22,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## Switzerland
 
 - [Switzerland](swiss.md)
+- [Switzerland travelogue](swiss_travelogue.md)
+
 
 ## Greece
 
