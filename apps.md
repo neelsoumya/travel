@@ -1,5 +1,8 @@
 # Apps and essentials
 
-- Revolut
-- Battery pack
+- Revolut/UPI
+- Battery pack (hand baggage)
 - Google Gemini
+- Smartphone and SIM
+- Chargers/converters
+- Travel documents
