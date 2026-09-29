@@ -20,9 +20,11 @@ choose with luggage option
 
 * get IC-card or SUCA card (can use in vending machines/shops)
 
-* Renkoji temple
+* Renkoji temple and how to visit the final resting place of Netaji Subhas Chandra Bose
 
-  Get off at Higashi Koenji station
+  Get off at Higashi Koenji station 
+
+  Great detailed video explanation here 
 
  [video](https://www.youtube.com/watch?v=eqpd21FD8sA&t=621s)
 
