@@ -21,7 +21,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Vesuvius
 - [Pompei](https://www.youtube.com/shorts/y1lKAdtJDgw)
 - [Naples](https://www.youtube.com/shorts/Rq8GhEf7nWo) 🍕 pizza!
-- [Siena](https://www.youtube.com/shorts/cXHwjGmQf4M) and [horse racing in Siena](https://www.youtube.com/shorts/EOW4aEQ2oYU)
+- [Siena](https://www.youtube.com/shorts/cXHwjGmQf4M) and [horse racing in Siena](https://www.youtube.com/shorts/EOW4aEQ2oYU) and [betting game in Siena]() and a [procession in Siena]()
+
 
 ## Switzerland
 
