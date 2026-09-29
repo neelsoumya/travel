@@ -10,7 +10,7 @@
 
 * [shinkansen/bullet train](https://www.youtube.com/shorts/k7_rAABWDA8)
 
-* Mt Fuijiyama and temple view
+* [Mt Fuijiyama and temple view](https://allabout-japan.com/en/article/1299/)
 
 The iconic postcard view of Mount Fuji combined with a five-storied pagoda is located at the Chureito Pagoda in Arakurayama Sengen Park (Arakurayama Sengen Kōen) in Fujiyoshida, Yamanashi Prefecture.
 
