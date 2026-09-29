@@ -3,7 +3,10 @@
 - Revolut/UPI
 - Battery pack (hand baggage)
 - Google Gemini
+
 - Smartphone and SIM
 - Chargers/converters
 - Travel documents
+
 - Taxi app
+- Trainline app
