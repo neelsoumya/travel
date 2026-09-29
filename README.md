@@ -5,6 +5,25 @@ Travel and Travelogues (_deshe bideshe_)
 
 - [Apps and essentials](apps.md)
 
+## Greece
+
+- Athens
+- Kytheira
+- Peloponesia
+
+## Egypt
+
+## Tanzania
+
+- Serengetti
+- Kilimanjaro
+
+## Japan
+
+- [Japan](japan.md)
+- [Japan travelogue](japan_travelogue.md)
+
+
 
 ## Scotland
 
@@ -30,24 +49,6 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Switzerland](swiss.md)
 - [Switzerland travelogue](swiss_travelogue.md)
 
-
-## Greece
-
-- Athens
-- Kytheira
-- Peloponesia
-
-## Egypt
-
-## Tanzania
-
-- Serengetti
-- Kilimanjaro
-
-## Japan
-
-- [Japan](japan.md)
-- [Japan travelogue](japan_travelogue.md)
 
 ## Peru
 
