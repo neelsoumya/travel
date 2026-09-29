@@ -47,6 +47,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## Japan
 
 - [Japan](japan.md)
+- [Japan travelogue](japan_travelogue.md)
 
 ## Peru
 
