@@ -16,5 +16,9 @@
 - I will always remember the Swiss Brienz Rothorn steam train and the snow capped mountains and the [turquoise lake](https://www.youtube.com/shorts/4OMTkNsFbII)
 - We had chocolate coins and cuckoo clock
 - We had a boat ride (_Brunnen Waldterstadersee_). They were a group of women who were very drunk. One of them said I should have a drink with them and join them next year! I promised I would!
-- Travel indeed broadens the mind
+- Travel indeed broadens the mind!
+
+![image](images/brienz_lake_swiss.jpeg)
+
+Picture taken by Joyeeta Ghose
 
