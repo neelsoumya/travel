@@ -15,7 +15,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## Italy
 
 - [Italy](italy.md)
-- [Rome and Vatican](https://www.youtube.com/shorts/CPemfIxxkwc)
+- [Rome](https://www.youtube.com/shorts/cf0nfn0bVGg)
+- [Rome and Vatican](https://www.youtube.com/shorts/CPemfIxxkwc) and another [video](https://www.youtube.com/shorts/r-dUO40sSEU)
 - [Naples](https://github.com/neelsoumya/travel/blob/main/Naples.pdf)
 - [Amalfi coast cruise](https://www.youtube.com/shorts/4pwkXu-IJpc) from [Naples](https://www.youtube.com/shorts/3vmsl79sEqk)
 - [Vesuvius](https://www.youtube.com/shorts/uH06mqEYfiM)
