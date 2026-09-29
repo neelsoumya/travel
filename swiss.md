@@ -25,7 +25,6 @@ Swiss German words
 - [SBB](https://play.google.com/store/apps/details?id=ch.sbb.mobile.android.b2c&hl=de_CH)
 - Revolut
 
-## Buy Lucerne travel pass
 
 ## Day 1 — Arrival & Lucerne
 
