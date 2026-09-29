@@ -13,4 +13,5 @@
 - The food was simply amazing. The broad range of options of pastries, croissant, bread, icecream and chocolates was simply amazing!
 - coop is now my favourite shop!
 - We saw wonderful mountains, snow capped peaks and [turquoise lakes](https://www.youtube.com/shorts/4OMTkNsFbII)
+- I will always remember the Swiss Brienz Rothorn steam train and the snow capped mountains and the [turquoise lake](https://www.youtube.com/shorts/4OMTkNsFbII)
 - Travel indeed broadens the mind
