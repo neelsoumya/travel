@@ -11,6 +11,10 @@ Swiss German words
 - bitte schun (_you are welcome 🙏 _)
 - ein moment bitte (_one moment please_)
 - nicht bitte (_no please_)
+- keine rindfleisch (_no beef_)
+- poulat (_chicken_)
+- schweinfleisch (_swine/pork_)
+
 
 ## Center around Lucerne
 
