@@ -13,6 +13,10 @@ Travel and Travelogues (_deshe bideshe_)
 
 ## Egypt
 
+- Pyramids
+- Luxor
+- Alexandria
+
 ## Tanzania
 
 - Serengetti
@@ -65,6 +69,6 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Malampuzha dam Kerala 🦫 
 - Taj Mahal
 - Leh/Ladakh [video Zanskar hike](https://www.youtube.com/watch?v=FdjCLwtFhF4) and [here](https://www.instagram.com/p/DYH51pQgDEG/) and [Pangong Lake](https://www.instagram.com/p/DXoejfSjowu/) and [Khardungla Pass](https://www.instagram.com/p/DXgq2lzDwhj/)
-- Himalayan mountaineering institute 
+- [Himalayan mountaineering institute](https://hmidarjeeling.com/) 
 - Arunachal Pradesh
 
