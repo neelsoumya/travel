@@ -17,6 +17,8 @@
 - Bien
 - Buenas dias
 - Buenas noches
+- Muchos gracias
+- por favor
 
 Machu Pichu
 
