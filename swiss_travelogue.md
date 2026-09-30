@@ -11,7 +11,8 @@
 - We also spoke with someone from Nigeria who works in Lucerne. He had good things to say about the Swiss people
 - We also liked travelling here. The people are good although reserved
 - The food was simply amazing. The broad range of options of pastries, croissant, bread, icecream and chocolates was simply amazing!
-- _COOP_ is now my favourite shop!
+- _COOP_ is now my favourite shop! We get variety of breads, croissants, chocolates .....
+- The _chocolate factory_ was a great experience. It was a great experience making our own chocolate.
 - We saw wonderful mountains, snow capped peaks and [turquoise lakes](https://www.youtube.com/shorts/4OMTkNsFbII)
 - I will always remember the Swiss Brienz Rothorn steam train and the snow capped mountains and the [turquoise lake](https://www.youtube.com/shorts/4OMTkNsFbII)
 - We had chocolate coins and cuckoo clock
@@ -20,5 +21,7 @@
 
 ![image](images/brienz_lake_swiss.jpeg)
 
-Picture taken by Joyeeta Ghose
+Picture taken by Joyeeta Ghose. This is not AI generated!
+
+
 
