@@ -57,6 +57,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## Peru
 
 - [webpage](peru.md)
+- [travelogue Peru](peru_travelogue.md)
 
 ## Thailand 🇹🇭
 
