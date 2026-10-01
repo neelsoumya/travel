@@ -14,6 +14,7 @@ Swiss German words
 - keine rindfleisch (_no beef_)
 - poulat (_chicken_)
 - schweinfleisch (_swine/pork_)
+- alles gut (_all good_)
 
 
 ## Center around Lucerne
