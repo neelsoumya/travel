@@ -66,6 +66,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 ## India
 
+- [Amazing India](amazing-india.md)
 - Dudhsagar falls
 - Malampuzha dam Kerala 🦫 
 - Taj Mahal
