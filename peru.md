@@ -1,9 +1,10 @@
 # Peru
 
+- [Peru, Cusco and Llamas 🎥](https://www.youtube.com/shorts/YkUK8udCMIc)
 - Lima pyramid
 - Cusco
 - [Cusco San Pedro market](https://www.youtube.com/shorts/0gKU-iOSWIE) and [video](https://www.youtube.com/shorts/8S6qTMIT-Y4)
-- Machu Pichu
+- [Machu Pichu 🎥](https://www.youtube.com/shorts/zgZAr3pzoDk)
 - Arequippa
 - Rainbow mountain
 - [Travelogue Peru](peru_travelogue.md)
