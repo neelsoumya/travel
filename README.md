@@ -47,6 +47,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Pompei](https://www.youtube.com/shorts/y1lKAdtJDgw)
 - [Naples](https://www.youtube.com/shorts/Rq8GhEf7nWo) 🍕 pizza!
 - [Siena](https://www.youtube.com/shorts/cXHwjGmQf4M) and [horse racing in Siena](https://www.youtube.com/shorts/EOW4aEQ2oYU) and [people playing a betting game in Siena in the evening in September](https://www.youtube.com/shorts/cXHwjGmQf4M) and a [procession in Siena for celebrating a victory in the horse race in September](https://www.youtube.com/shorts/EOW4aEQ2oYU) and another video [here](https://www.youtube.com/shorts/KvjUTy5-0wo)
+- Siena from a [balcony🎥](https://www.youtube.com/shorts/589Jj67OJ84)
+
 
 
 ## Switzerland
