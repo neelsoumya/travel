@@ -1,6 +1,7 @@
 # Peru
 
 - [Peru, Cusco and Llamas 🎥](https://www.youtube.com/shorts/YkUK8udCMIc)
+- [Lima and a bus journey 🎥](https://www.youtube.com/shorts/iVj5eRRVlSY)
 - Lima pyramid
 - [Cusco](https://www.youtube.com/shorts/VHj7LutKQHQ)
 - [Cusco San Pedro market](https://www.youtube.com/shorts/0gKU-iOSWIE) and [video](https://www.youtube.com/shorts/8S6qTMIT-Y4)
