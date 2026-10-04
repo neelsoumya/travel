@@ -41,6 +41,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Italy](italy.md)
 - [Rome](https://www.youtube.com/shorts/cf0nfn0bVGg)
 - [Rome and Vatican](https://www.youtube.com/shorts/CPemfIxxkwc) and another [video](https://www.youtube.com/shorts/r-dUO40sSEU)
+- [Pantheon Rome](https://www.youtube.com/shorts/ywTj3lvhJgA)
 - [Vatican paintings](https://www.youtube.com/shorts/mBU4ZUqcx_w)
 - [Naples](https://github.com/neelsoumya/travel/blob/main/Naples.pdf)
 - [Amalfi coast cruise](https://www.youtube.com/shorts/4pwkXu-IJpc) from [Naples](https://www.youtube.com/shorts/3vmsl79sEqk)
