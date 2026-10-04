@@ -67,7 +67,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## India
 
 - [Amazing India](amazing-india.md)
-- Dudhsagar falls
+- Dudhsagar falls near Goa
 - Malampuzha dam Kerala 🦫 
 - Taj Mahal
 - Leh/Ladakh [video Zanskar hike](https://www.youtube.com/watch?v=FdjCLwtFhF4) and [here](https://www.instagram.com/p/DYH51pQgDEG/) and [Pangong Lake](https://www.instagram.com/p/DXoejfSjowu/) and [Khardungla Pass](https://www.instagram.com/p/DXgq2lzDwhj/)
