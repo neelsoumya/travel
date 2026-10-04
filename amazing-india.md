@@ -4,7 +4,9 @@
 
 ## Kanchenjunga
 
+<!--
 ![Kanchenjunga — page 1](images/page-1.png)
+-->
 
 **Kanchenjunga** (third highest mountain in the world at 28169 feet, photograph taken by my mother Kalyani Banerjee).
 
@@ -17,7 +19,9 @@
 2. I personally like Kanha National Park where it is much more probable that you can come across a tiger.
 3. **I certainly did!**
 
+<!--
 ![Tigers of India — page 2](images/page-2.png)
+-->
 
 A picture taken by my mother Kalyani Banerjee of a Royal Bengal Tiger in Kanha National Park.
 
@@ -43,8 +47,6 @@ You can browse more pictures taken by her [here](#).
 - [India travel website](#)
 - [A website dedicated to an old friend Tathagata Sengupta](#)
 
-![Source page 3](images/page-3.png)
 
 ---
 
-*Converted from the original PDF. The PDF contains links whose destination URLs were not exposed in the extracted text, so those link targets are left as placeholders rather than guessed.*
