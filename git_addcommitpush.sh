@@ -4,7 +4,7 @@ git pull
 
 git add *
 
-git commit -m "edits automated git"
+git commit -m "edits for material"
 
 git push
 
