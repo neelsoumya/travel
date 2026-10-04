@@ -39,6 +39,8 @@ choose with luggage option
 
 * [Kyoto temple close to train station](https://www.youtube.com/shorts/ygR9XybNWw8)
 
+* [Kyoto temple and koi](https://www.youtube.com/shorts/ygR9XybNWw8)
+
 * Arashiyama
 
 * Teien Zen Garden
