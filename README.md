@@ -44,6 +44,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Pantheon Rome](https://www.youtube.com/shorts/ywTj3lvhJgA)
 - [Vatican paintings](https://www.youtube.com/shorts/mBU4ZUqcx_w)
 - [Naples](https://github.com/neelsoumya/travel/blob/main/Naples.pdf)
+- [Vatican from the inside (a plant's view)](https://www.youtube.com/shorts/NUwEDnlrrKM)
 - [Amalfi coast cruise](https://www.youtube.com/shorts/4pwkXu-IJpc) from [Naples](https://www.youtube.com/shorts/3vmsl79sEqk)
 - [Vesuvius](https://www.youtube.com/shorts/uH06mqEYfiM)
 - [Pompei](https://www.youtube.com/shorts/y1lKAdtJDgw)
