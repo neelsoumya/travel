@@ -15,7 +15,8 @@ Travel and Travelogues (_deshe bideshe_)
 
 - Pyramids
 - Luxor
-- Alexandria
+- [Alexandria](https://en.wikipedia.org/wiki/Alexandria)
+- [Catacombs Kom El Shoqafa](https://en.wikipedia.org/wiki/Catacombs_of_Kom_El_Shoqafa)
 
 ## Tanzania
 
