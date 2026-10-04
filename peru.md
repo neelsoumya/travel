@@ -5,6 +5,7 @@
 - [Cusco](https://www.youtube.com/shorts/VHj7LutKQHQ)
 - [Cusco San Pedro market](https://www.youtube.com/shorts/0gKU-iOSWIE) and [video](https://www.youtube.com/shorts/8S6qTMIT-Y4)
 - [Machu Pichu 🎥](https://www.youtube.com/shorts/zgZAr3pzoDk)
+- [Tintin in Machu Pichu! 🎥](https://www.youtube.com/shorts/zfPDV9sWadI)
 - Arequippa
 - Rainbow mountain
 - [Travelogue Peru](peru_travelogue.md)
@@ -20,6 +21,8 @@
 - Buenas noches
 - Muchos gracias
 - por favor
+- nada espanol
+
 
 Machu Pichu
 
