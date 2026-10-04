@@ -80,3 +80,6 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Himalayan mountaineering institute](https://hmidarjeeling.com/) 
 - Arunachal Pradesh
 - [Kanha National Park tigers 🐅](https://sites.google.com/site/neelsoumya/amazing-india)
+- [Panchachuli Uttarakhand](https://www.instagram.com/reels/DeB-1PuTCGN/)
+
+
