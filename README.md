@@ -79,7 +79,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Leh/Ladakh [video Zanskar hike](https://www.youtube.com/watch?v=FdjCLwtFhF4) and [here](https://www.instagram.com/p/DYH51pQgDEG/) and [Pangong Lake](https://www.instagram.com/p/DXoejfSjowu/) and [Khardungla Pass](https://www.instagram.com/p/DXgq2lzDwhj/) and [Zanskar](https://www.youtube.com/watch?v=_lCYVsK941g)
 - [Himalayan mountaineering institute](https://hmidarjeeling.com/) 
 - Arunachal Pradesh
-- [Kanha National Park tigers 🐅](https://sites.google.com/site/neelsoumya/amazing-india)
+- [Kanha National Park tigers 🐅](https://sites.google.com/site/neelsoumya/amazing-india) and [getyourguide tour for 3 days](https://www.getyourguide.com/en-gb/kanha-tiger-reserve-l119265/kanha-national-park-3-day-tribal-tour-with-tiger-safari-t921372/)
 - [Panchachuli Uttarakhand](https://www.instagram.com/reels/DeB-1PuTCGN/)
 
 
