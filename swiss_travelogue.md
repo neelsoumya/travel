@@ -24,7 +24,13 @@
 
 ![image](images/brienz_fromtop.jpeg)
 
+
 Pictures taken by Joyeeta Ghose. These are not AI generated!
+
+
+![image](images/swiss1.jpeg)
+![image](images/swiss2.jpeg)
+![image](images/swiss3.jpeg)
 
 
 
