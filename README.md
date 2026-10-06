@@ -83,3 +83,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Panchachuli Uttarakhand](https://www.instagram.com/reels/DeB-1PuTCGN/)
 
 
+## Other interesting places
+
+- [Interesting offbeat places](interesting_places.md)
+
+
