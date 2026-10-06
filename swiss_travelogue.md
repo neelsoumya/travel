@@ -22,7 +22,9 @@
 
 ![image](images/brienz_lake_swiss.jpeg)
 
-Picture taken by Joyeeta Ghose. This is not AI generated!
+![image](images/brienz_fromtop.jpeg)
+
+Pictures taken by Joyeeta Ghose. These are not AI generated!
 
 
 
