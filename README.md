@@ -81,7 +81,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - Arunachal Pradesh
 - [Kanha National Park tigers 🐅](https://sites.google.com/site/neelsoumya/amazing-india) and [getyourguide tour for 3 days](https://www.getyourguide.com/en-gb/kanha-tiger-reserve-l119265/kanha-national-park-3-day-tribal-tour-with-tiger-safari-t921372/)
 - [Panchachuli Uttarakhand](https://www.instagram.com/reels/DeB-1PuTCGN/)
-- [10 best trekking in India](https://www.youtube.com/watch?v=B99G5_OZIy0)
+- [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
 
 ## Other interesting places
 
