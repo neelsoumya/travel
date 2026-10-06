@@ -2,7 +2,7 @@
 
 ## ID
 
-Yes, **you do need to show ID** to enter the **Colosseum** — especially if you're using a **Roma Pass** or have made a **reservation online**.
+**you do need to show ID** to enter the **Colosseum** — especially if you're using a **Roma Pass** or have made a **reservation online**.
 
 ---
 
