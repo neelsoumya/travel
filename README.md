@@ -75,6 +75,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Amazing India](amazing-india.md)
 - Dudhsagar falls near Goa
 - Malampuzha dam Kerala 🦫 
+- [Kerala elephants Blavana](https://www.youtube.com/watch?v=3wxXsqcCVJU) and [google maps](https://www.google.com/maps/place/Kuttampuzha+River+-+View+Point/@10.1494568,74.5340633,574799m/data=!3m1!1e3!4m6!3m5!1s0x3b07ef1f9c1e60bd:0xd2a59d8fdba17e0c!8m2!3d10.1494568!4d76.7291832!16s%2Fg%2F11k5_5fs1w!18m1!1e1?entry=ttu&g_ep=EgoyMDI2MDkzMC4wIKXMDSoASAFQAw%3D%3D)
 - Taj Mahal
 - Leh/Ladakh [video Zanskar hike](https://www.youtube.com/watch?v=FdjCLwtFhF4) and [here](https://www.instagram.com/p/DYH51pQgDEG/) and [Pangong Lake](https://www.instagram.com/p/DXoejfSjowu/) and [Khardungla Pass](https://www.instagram.com/p/DXgq2lzDwhj/) and [Zanskar](https://www.youtube.com/watch?v=_lCYVsK941g)
 - [Himalayan mountaineering institute](https://hmidarjeeling.com/) 
