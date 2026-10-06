@@ -39,3 +39,12 @@ Now he rests an eternal sleep. He is at peace now in a truly peaceful setting.
 ![image](images/bose.png)
 
 
+
+## Kyoto
+
+- I was really tired and I was traveling from Tokyo to Kyoto. As I arrived in Kyoto station on board the bullet train, I was absolutely drenched in sweat. Lugging a heavy suitcase across busy crowded streets on the narrow streets of Kyoto, I was completely drenched in sweat. All of a sudden, I arrived in front of a magical wooden temple with a small moat around it with koi fish in it. In front of it were these Buddhist quotes. I was transfixed and stopped in my tracks to take them in and really assimilate them. It had a very profound effect on me. 
+
+
+- Taken in front of a temple in Kyoto
+
+![image](images/kyoto_quote.jpeg)
