@@ -14,6 +14,10 @@ Travel and Travelogues (_deshe bideshe_)
 
 ## Morocco
 
+- Casablanca
+- Hassan II mosque, Casablanca, Morocco
+
+
 ## Egypt
 
 - Pyramids
