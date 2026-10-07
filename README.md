@@ -8,7 +8,12 @@ Travel and Travelogues (_deshe bideshe_)
 ## Greece
 
 - Athens
+- [Funicular Athens](https://www.atlasobscura.com/places/lycabettus-funicular)
+- [Athenian Agora](https://www.atlasobscura.com/places/the-athenian-agora-athens-greece)
+- [Oracle of Delphi](https://www.atlasobscura.com/places/the-oracle-of-delphi-greece)
+- [Athens Anafiotika](https://www.atlasobscura.com/places/anafiotika)
 - Kytheira
+- [Drakolimni](https://www.atlasobscura.com/places/drakolimni)
 - Peloponesia
 - Nymfaio
 - [Halkidki](https://www.instagram.com/reel/DdhL3nkOpga/)
