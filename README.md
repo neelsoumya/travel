@@ -11,6 +11,8 @@ Travel and Travelogues (_deshe bideshe_)
 - Kytheira
 - Peloponesia
 - Nymfaio
+- [Halkidki](https://www.instagram.com/reel/DdhL3nkOpga/)
+
 
 
 ## Morocco
