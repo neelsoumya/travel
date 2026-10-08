@@ -49,3 +49,8 @@ choose with luggage option
 * Teien Zen Garden
 
 * [Kyoto secret valleys](https://www.youtube.com/watch?v=pmMbuIv5z90)
+
+
+## Others
+
+- [Sky village Ghibli vibes countryside beautiful Tokushima](https://www.youtube.com/watch?v=Erj_L7u7Vi0) 
