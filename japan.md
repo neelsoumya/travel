@@ -47,3 +47,5 @@ choose with luggage option
 * Arashiyama
 
 * Teien Zen Garden
+
+* [Kyoto secret valleys](https://www.youtube.com/watch?v=pmMbuIv5z90)
