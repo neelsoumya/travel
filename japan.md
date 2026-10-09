@@ -51,6 +51,8 @@ choose with luggage option
 * [Kyoto secret valleys](https://www.youtube.com/watch?v=pmMbuIv5z90)
 
 
+* [Kyoto foggy Shintoism](https://youtu.be/zERauMilqSI?si=8rPLe19fwFd1F_am&t=809)
+
 ## Others
 
 - [Sky village Ghibli vibes countryside beautiful Tokushima](https://www.youtube.com/watch?v=Erj_L7u7Vi0) 
