@@ -14,7 +14,7 @@ Travel and Travelogues (_deshe bideshe_)
 - [Athens Anafiotika](https://www.atlasobscura.com/places/anafiotika)
 - Kytheira
 - [Drakolimni](https://www.atlasobscura.com/places/drakolimni)
-- Peloponesia
+- Peloponesia and [Patras](https://www.greeka.com/peloponnese/patra/)
 - Nymfaio
 - [Halkidki](https://www.instagram.com/reel/DdhL3nkOpga/)
 - [Thessaloniki > Litochoro > Paleos Panteleimonas > Platamonas](https://www.instagram.com/reel/DdOLdeduHZB/)
