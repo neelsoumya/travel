@@ -70,6 +70,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - the people are a bit gruff and unfriendly though
 - the sea was calm and immense. we saw the North Sea for the fisrt time
 - the tide would come and sweep over the beach in the late afternoon (the same beach that we would have walked on a few hours before)
+- we saw some fall colours on the way back!
 
 
 ## Italy
