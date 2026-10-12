@@ -58,9 +58,18 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 ## England and Wales
 
 - Tenby
+- Llandudno
 - Exmouth
-- Sheringham
-- Brighton
+- Sheringham and steam railway
+- [Whitby](https://www.youtube.com/watch?v=-9WXbz6K9io) and [Whitby Abbey](https://www.youtube.com/shorts/GZ9wYSks8tQ) and a [clairvoyance specialist](https://youtube.com/shorts/qOqZDvTIS_E)
+- The place (Whitby abbey) had a very eerie look to it. I got the sense of how monks centuries back wanted to live in isolation in a desolate and wind swept place overlooking a beautiful sea.
+- we also saw a clairvoyance specialist
+- we saw people fishing from the pier. As we were looking, we saw someone reel in what looked like pomphret.
+- we saw the beautiful north york moors national park from the train
+- the landscape is beautiful
+- the people are a bit gruff and unfriendly though
+- the sea was calm and immense. we saw the North Sea for the fisrt time
+- the tide would come and sweep over the beach in the late afternoon (the same beach that we would have walked on a few hours before)
 
 
 ## Italy
