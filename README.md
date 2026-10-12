@@ -124,4 +124,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 - [Interesting offbeat places](interesting_places.md)
 
+## Germany
+
+- [Glucksburg castle](https://en.wikipedia.org/wiki/Gl%C3%BCcksburg_Castle#/media/File:Gluecksburg-LSG-Flensburger-Foerde-2020-16-msu-.jpg)
+
 
