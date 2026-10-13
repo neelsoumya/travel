@@ -72,7 +72,9 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - the people are a bit gruff and unfriendly though
 - the sea was calm and immense. we saw the North Sea for the fisrt time
 - the tide would come and sweep over the beach in the late afternoon (the same beach that we would have walked on a few hours before)
+- we also saw someone propose to their partner!
 - we met someone who is a blacksmith and makes bronze replicas of fossils. We actually held in our hands a real fossil ammonite
+
 - we saw some fall colours on the way back!
 
 
