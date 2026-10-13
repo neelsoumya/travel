@@ -121,6 +121,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Kanha National Park tigers 🐅](https://sites.google.com/site/neelsoumya/amazing-india) and [getyourguide tour for 3 days](https://www.getyourguide.com/en-gb/kanha-tiger-reserve-l119265/kanha-national-park-3-day-tribal-tour-with-tiger-safari-t921372/)
 - [Panchachuli Uttarakhand](https://www.instagram.com/reels/DeB-1PuTCGN/)
 - [Periyar national park](https://www.google.com/maps/place/Periyar+National+Park/@9.462155,77.2368474,3a,75y,90t/data=!3m8!1e2!3m6!1sCIHM0ogKEICAgID055fT3gE!2e10!3e12!6shttps:%2F%2Flh3.googleusercontent.com%2Fgps-cs-s%2FANWiy9Siwb8JOGQ-fthxr3B_05GcwWnyn7-ADFJis4eWemCf2duQChiWaiJv94bA3UxBH4U7KCjHIIfKgkoCWaImyy8-zteu8a3YvcTrdmMFgVbzQ5Qo3X0fwX6eJEPPaOITt6jsz2p0%3Dw203-h152-k-no!7i4608!8i3456!4m23!1m15!4m14!1m6!1m2!1s0x3b00c582b1189633:0xdc955b7264f63933!2sMadurai,+Tamil+Nadu,+India!2m2!1d78.1197754!2d9.9252007!1m6!1m2!1s0x3b04ed3d2a087861:0x1e790e896aeffaa0!2sKanniyakumari,+Tamil+Nadu+629702,+India!2m2!1d77.5495019!2d8.0843512!3m6!1s0x3b06f7f28a088c89:0x1f8406b9a08dc67b!8m2!3d9.4631378!4d77.2286518!10e5!16zL20vMDh4eGp6?entry=ttu&g_ep=EgoyMDI2MTAwNy4wIKXMDSoASAFQAw%3D%3D)
+- Dhauladhar ranges Kangra Himachal Pradesh
 - [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
 
 
