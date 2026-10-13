@@ -40,6 +40,8 @@ Travel and Travelogues (_deshe bideshe_)
 
 - Serengetti
 - Kilimanjaro
+- [Zanzibar sea and marine creatures swim](http://instagram.com/p/DBXCGqSuNXD/?img_index=1)
+
 
 ## Japan
 
