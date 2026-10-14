@@ -53,6 +53,8 @@ choose with luggage option
 
 * [Kyoto foggy Shintoism](https://youtu.be/zERauMilqSI?si=8rPLe19fwFd1F_am&t=809)
 
+* [Amarahashi coast and beautiful mountains](https://www.youtube.com/watch?v=XKs7BlrOJmo)
+
 ## Others
 
 - [Sky village Ghibli vibes countryside beautiful Tokushima](https://www.youtube.com/watch?v=Erj_L7u7Vi0) 
