@@ -58,3 +58,5 @@ choose with luggage option
 ## Others
 
 - [Sky village Ghibli vibes countryside beautiful Tokushima](https://www.youtube.com/watch?v=Erj_L7u7Vi0) 
+
+- [Shizuoka emerald green lake](https://www.youtube.com/watch?v=4gcPpraTwRo)
