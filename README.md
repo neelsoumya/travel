@@ -138,4 +138,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 
 - [Glucksburg castle](https://en.wikipedia.org/wiki/Gl%C3%BCcksburg_Castle#/media/File:Gluecksburg-LSG-Flensburger-Foerde-2020-16-msu-.jpg)
 
+## Russia
+
+- Trans-Siberian Railway
+- [St Petersburg and Hermitage](https://www.youtube.com/watch?v=8iSBVIHCRdc)
 
