@@ -34,5 +34,4 @@
 ## Contact & Booking
 
 * **Website:** [BriSphere.com](https://BriSphere.com)
-* **Phone:** +91 7017860644 (Urgan)
-* **Action:** BOOK NOW
+* **Phone:** +91 7017860644 (Urgan Tsondus)
