@@ -134,6 +134,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Ladakh connectivity](https://www.youtube.com/watch?v=iTeOni3gLnE)
 - [Andaman](https://www.youtube.com/watch?v=-YaRRFrXW9M&pp=ugUHEgVlbi1VU9IHCQlHDAGHKiGM7w%3D%3D)
 - [Meghalaya](https://www.youtube.com/watch?v=R0A_MJKTulk)
+- [THE UNCERTAINTY LAB trekking and expedition by Major L. S. Chaudhary](https://www.facebook.com/reel/1153980077190312)
 - [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
 - [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
 
