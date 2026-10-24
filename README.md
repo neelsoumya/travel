@@ -23,6 +23,10 @@ Travel and Travelogues (_deshe bideshe_)
 - cruise
 
 
+## Finland/Norway
+
+- Finland/Norway cruise from UK
+
 ## Morocco
 
 - Casablanca
@@ -131,6 +135,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Andaman](https://www.youtube.com/watch?v=-YaRRFrXW9M&pp=ugUHEgVlbi1VU9IHCQlHDAGHKiGM7w%3D%3D)
 - [Meghalaya](https://www.youtube.com/watch?v=R0A_MJKTulk)
 - [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
+- [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
 
 
 ## Other interesting places
