@@ -137,6 +137,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Meghalaya](https://www.youtube.com/watch?v=R0A_MJKTulk)
 - [THE UNCERTAINTY LAB trekking and expedition by Major L. S. Chaudhary](https://www.facebook.com/reel/1153980077190312)
 - [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
+- [Kedarkanth hike](https://www.youtube.com/watch?v=InI8qyY_Y0o)
 - [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
 
 
