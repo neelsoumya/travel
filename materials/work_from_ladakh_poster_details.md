@@ -33,5 +33,5 @@
 
 ## Contact & Booking
 
-* **Website:** [BriSphere.com](https://BriSphere.com)
+* **Website:** [BriSphere.com](https://BriSphere.com) and [linkedin post](https://www.linkedin.com/posts/urgan-tsondus-43196b1a1_workfromhome-workfromanywhere-airbnb-activity-6926634699062685696-sBjz)
 * **Phone:** +91 7017860644 (Urgan Tsondus)
