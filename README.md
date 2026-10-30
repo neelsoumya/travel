@@ -139,8 +139,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [10 best trekking in India e.g. Kuari pass Nanda Devi](https://www.youtube.com/watch?v=B99G5_OZIy0)
 - [Trekking and companies in India](https://youtu.be/CCF6mYRuDSw?si=e4BwE0lBdXFkrev8&t=27), IndiaHikes, Trek The Himalayas (Kashmir Great Lakes Trek), FredPaix Adventures (Diya) 
 - [Kedarkanth hike](https://www.youtube.com/watch?v=InI8qyY_Y0o)
-
 - [Tso Moriri to Leh](https://www.youtube.com/watch?v=wJRjnRWUL38) and movie [Higher Calling](https://www.imdb.com/title/tt33504891/)
+- [Wilderness first aid course Hanifl center, Mussoorie](https://youtu.be/CCF6mYRuDSw?si=e4BwE0lBdXFkrev8&t=27)
 - [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
 
 
