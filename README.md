@@ -142,6 +142,8 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Tso Moriri to Leh](https://www.youtube.com/watch?v=wJRjnRWUL38) and movie [Higher Calling](https://www.imdb.com/title/tt33504891/)
 - [Wilderness first aid course Hanifl center, Mussoorie](https://youtu.be/CCF6mYRuDSw?si=e4BwE0lBdXFkrev8&t=27)
 - [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
+- [Andaman](https://www.youtube.com/shorts/WWGkUQCp3no)
+
 - [India train booking website](https://www.irctc.co.in/nget/train-search)
 - [India train catering booking app](https://play.google.com/store/apps/details?id=com.irctc.fot&hl=en&pli=1) and [webpage IRCTC](https://www.ecatering.irctc.co.in/)
 
