@@ -142,7 +142,7 @@ https://www.youtube.com/@kalyanibanerjee9911/videos
 - [Tso Moriri to Leh](https://www.youtube.com/watch?v=wJRjnRWUL38) and movie [Higher Calling](https://www.imdb.com/title/tt33504891/)
 - [Wilderness first aid course Hanifl center, Mussoorie](https://youtu.be/CCF6mYRuDSw?si=e4BwE0lBdXFkrev8&t=27)
 - [Ladakh stay and city tour](materials/work_from_ladakh_poster_details.md)
-
+- [India train booking website](https://www.irctc.co.in/nget/train-search)
 
 
 ## Other interesting places
