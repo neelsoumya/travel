@@ -10,12 +10,13 @@
 - We had lots of coffee
 - We went to a candlelit dinner in a fancy restaurant (_Thai Garden_) where a woman was playing a traditional instrument
 - We also spoke with someone from Nigeria who works in Lucerne. He had good things to say about the Swiss people
-- We also liked travelling here. The people are good although reserved
+- We liked travelling here. The people are good although reserved
 - The food was simply amazing. The broad range of options of pastries, croissant, bread, icecream and chocolates was simply amazing!
 - _COOP_ is now my favourite shop! We get variety of breads, croissants, chocolates .....
 - The _chocolate factory_ was a great experience. It was a great experience making our own chocolate.
 - We saw wonderful mountains, snow capped peaks and [🎥turquoise lakes](https://www.youtube.com/shorts/4OMTkNsFbII)
 - I will always remember the [Swiss Brienz Rothorn steam train🎥](https://www.youtube.com/shorts/KCO9mHGr4VU) and the snow capped mountains and the [🎥turquoise lake](https://www.youtube.com/shorts/4OMTkNsFbII)
+- [🎥 Pilatus and cow bells](https://youtu.be/LXn94tXzXZI)
 - We had chocolate coins and cuckoo clock
 - We had a boat ride (_Brunnen Waldterstadersee_). They were a group of women who were very drunk. One of them said I should have a drink with them and join them next year! I promised I would!
 - Travel indeed broadens the mind!
