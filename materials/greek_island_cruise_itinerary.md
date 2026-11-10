@@ -43,4 +43,16 @@ This itinerary features a classic, relaxed Aegean Sea cruise departing from Athe
 1. **Ship Amenities:** Aegean cruise ships feature modern stabilizer fins, elevators, 24/7 medical centers, and fully accessible dining rooms.
 2. **Cabin Placement:** Choose a midship cabin on a middle or lower deck for the smoothest ride.
 3. **Shore Excursions:** Always select "Gentle" or coach-based tour packages rather than extensive walking tours across cobblestones.
-4. **Visa Handling:** Carry a valid multi-entry Schengen Visa; port check-ins across Greek islands are seamless for cruise passengers.
+4. **Visa Handling:** Carry a valid multi-entry Schengen Visa; port check-ins across Greek islands are seamless for cruise passengers. 
+- Single-Entry Schengen Visa: Sufficient if the itinerary visits only Greek ports.
+- It is recommended to request a multiple-entry visa on your application regardless, for added flexibility.
+
+## Late September
+
+- Why Late September is Ideal
+
+- Pleasant Weather: Day temperatures average a comfortable 24°C to 27°C (75°F–80°F) with clear skies, avoiding the intense heatwaves of July/August.
+
+- Fewer Crowds: Main tourist hotspots (especially Santorini and Mykonos) are significantly quieter and easier to navigate with elderly parents.
+
+- Milder Winds: Summer Meltemi winds fade by mid-September, resulting in smoother seas and calmer sailing conditions across the Aegean.
