@@ -50,3 +50,9 @@ This itinerary is designed for a comfortable, relaxed luxury cruise from the Wes
 ## How to Book
 * Book directly through official luxury cruise portals (such as Cordelia Cruises) or reputed regional travel agents.
 * Pair your cruise reservation with round-trip flights between Kolkata and Kochi.
+
+## Timing
+
+- Cruise lines like Cordelia suspend their Lakshadweep sailings during the monsoon season (June to late September) due to rough Arabian Sea swells and unsafe tender transfers to the islands. 
+
+- The Lakshadweep cruise season runs from October through April, when the waters are calm and ideal for travel.
